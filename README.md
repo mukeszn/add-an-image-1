@@ -2,7 +2,7 @@
 
 this is a bullet list
 
-fuck 
+screw
 you
 jalen 
 suggs
